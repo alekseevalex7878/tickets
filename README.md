@@ -1,1 +1,1 @@
-earlier type second thou nails enemy special everyone brave must frozen before cross reason search
+settlers stairs during explanation yellow rabbit command board army family human solve syllable bark lungs
