@@ -1,1 +1,1 @@
-settlers stairs during explanation yellow rabbit command board army family human solve syllable bark lungs
+nation stone thus carbon half tank exact power ants slow shallow school composed managed rope
