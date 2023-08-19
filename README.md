@@ -1,1 +1,1 @@
-duck house excitement easier means command shout six follow settlers were learn ran quick vote
+willing far plenty clothing trick hunter happy pink smoke twice start farm tightly bite regular
