@@ -1,1 +1,1 @@
-willing far plenty clothing trick hunter happy pink smoke twice start farm tightly bite regular
+hospital dozen syllable rich automobile pair rose none moon empty kept apple shinning distant passage
