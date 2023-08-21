@@ -1,1 +1,1 @@
-hospital dozen syllable rich automobile pair rose none moon empty kept apple shinning distant passage
+than quick tall beyond level corner human struck goes late afternoon excitement simply parallel search
