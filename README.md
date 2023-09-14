@@ -1,1 +1,1 @@
-softly path frozen thumb industrial tales shop jack fell slept worker minute pupil attack shore
+yesterday sign seen write such total feature time article modern saw bread slightly tall burst
