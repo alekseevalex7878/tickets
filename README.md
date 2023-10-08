@@ -1,1 +1,1 @@
-closer happened warm actually throughout could becoming driver length think sentence afternoon vessels depend gravity
+short amount consonant bow pig case fly late valuable between speed trouble strong supply cent
