@@ -1,1 +1,1 @@
-broke heat long dirt water ants deal consonant tent music believed reach hole frozen lose
+location nor independent alive coat firm spent brass equal doll tone stomach rice cowboy above
