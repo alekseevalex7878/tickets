@@ -1,1 +1,1 @@
-day theory shallow interest in mine show limited pond chosen successful cold leaf importance wool
+seat larger provide swung buffalo route dropped basic spoken weak for writing establish prove alphabet
