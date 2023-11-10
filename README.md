@@ -1,1 +1,1 @@
-seat larger provide swung buffalo route dropped basic spoken weak for writing establish prove alphabet
+think water happy same story statement fifty fish cover youth soldier becoming building swimming motor
