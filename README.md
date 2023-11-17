@@ -1,1 +1,1 @@
-universe slept chose harder escape me value melted vowel tiny pole empty shut sets shadow
+faster become secret pleasant structure organization understanding unknown taught signal location layers dark sound southern
