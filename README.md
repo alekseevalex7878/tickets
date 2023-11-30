@@ -1,1 +1,1 @@
-human seed as fall exact nothing while such plane voice plane gasoline race teeth feature
+smile foot mainly sight read plane learn care driver tax slave silly band diameter seen
