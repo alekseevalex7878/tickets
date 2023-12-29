@@ -1,1 +1,1 @@
-blind glad upward weather prepare of blank dollar watch joined train degree difficulty street pale
+rich plural wish military star storm produce accurate eye service bet fair salt chief differ
