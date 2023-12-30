@@ -1,1 +1,1 @@
-rich plural wish military star storm produce accurate eye service bet fair salt chief differ
+affect mine rise ancient shut twenty safe apartment someone fierce grow lay mixture crowd handsome
