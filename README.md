@@ -1,1 +1,1 @@
-forget distance clear own ants many fellow new generally act guess prepare join kitchen leaf
+wolf according came consonant ate light settlers crack dollar angle raw whatever ill bat product
