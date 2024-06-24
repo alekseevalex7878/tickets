@@ -1,1 +1,1 @@
-twelve clothes broken lose swimming taught identity produce pan stock book ground road too struck
+object widely collect lonely shade earth wrapped building rush ants job shall about expect planet
