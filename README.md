@@ -1,1 +1,1 @@
-else reason physical heat prepare coal know spring shape meet danger engine nothing master corner
+step slave manufacturing interest high rapidly does capital brought struggle doctor quarter fear worker real
